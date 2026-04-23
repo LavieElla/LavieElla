@@ -47,13 +47,6 @@ I blend **emotion, storytelling, and creativity** to craft music that feels pers
 
 ---
 
-## 📸 Connect With Me  
-- 📷 Instagram: https://instagram.com/yourusername  
-- ▶️ YouTube: https://youtube.com/@yourchannel  
-- 🎧 Spotify: https://spotify.com  
-- 📩 Email: your@email.com  
-
----
 
 ## 💜 Fun Fact  
 I don’t just write songs… I **feel them first**.  
